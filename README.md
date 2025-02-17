@@ -7,6 +7,9 @@ The **CompTIA SY0-701 Security+** exam is the gold standard for cybersecurity pr
 
 More info : https://www.certifiedumps.com/comptia/sy0-701-dumps.html
 
+![done (67)](https://github.com/user-attachments/assets/6775db85-fea6-46d2-b07c-2628d996a315)
+
+
 ## 📚 **Why Take the CompTIA SY0-701 Exam?** 🤔  
 
 Earning the **SY0-701 certification** proves your expertise in:  
